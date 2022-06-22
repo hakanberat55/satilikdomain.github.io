@@ -1,0 +1,2 @@
+# satilikdomain.github.io
+kişisel
